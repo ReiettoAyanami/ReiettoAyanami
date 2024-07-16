@@ -1,5 +1,4 @@
 - I'm Lenzi Valentino
-- Studying Computer Science in High School
 - Discord: lnz#4986
 - Interested in Game and Web developing.
 
